@@ -1,2 +1,2 @@
 # bettermotherfuckingwebsite
-[bettermotherfuckingwebsite](file:///media/fuse/crostini_77890d566d1ab104aaee405fbc04fa7d750c17fe_termina_penguin/bettermotherfuckingwebsite.html)
+https://lealemau.github.io/bettermotherfuckingwebsite/
